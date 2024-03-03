@@ -12,7 +12,7 @@
 
 - 📫 How to reach me **sagarbhamare30@gmail.com**
 
-- 📄 Know about my experiences [https://drive.google.com/file/d/1P2KMcHPLiBC-l7AE1_iksP-oK7VUIHrO/view?usp=sharing](https://drive.google.com/file/d/1P2KMcHPLiBC-l7AE1_iksP-oK7VUIHrO/view?usp=sharing)
+- 📄 Resume [https://drive.google.com/file/d/1P2KMcHPLiBC-l7AE1_iksP-oK7VUIHrO/view?usp=sharing](https://drive.google.com/file/d/1P2KMcHPLiBC-l7AE1_iksP-oK7VUIHrO/view?usp=sharing)
 
 - ⚡ Fun fact **I am always 10 minutes early for everything.**
 
